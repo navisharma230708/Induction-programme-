@@ -36,9 +36,17 @@ After getting eduction loan don't give  back till 5.5 year. After 5.5 year if em
        Dr. Aarshdeep Singh
 
     A. His  lectute on (Food: A pivotal role in students overall wellness )
+
+   
 B. He tell students about the nutrition and vitamins to take in food .
+
+
   C.  He also encourage students towards healthy food .
+
+  
 D. He clear the doubts of students and clear the myths .
+
+
    At last , our seniors enlighten us .
    # Day 3
    ## 09:00 to 11:00
@@ -54,8 +62,9 @@ Some are here :-
 Lecture by Dr. Priya Darshni mam on 
 'Universal Humans Values'.
   * She explain briefly about
-     1. Understanding
-     2. Personal faculty
-     3. Relationships
+     1. Understanding :- She told us that , understanding is one of the most important thing to get happiness and prosperity. 
+     2. Personal faculty :- These are the needs to survive . These only need to be sufficient.
+        
+    3.Relationships :- She told that , one of the most needed thing in relationship is understanding. 
         
    
