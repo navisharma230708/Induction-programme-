@@ -62,9 +62,12 @@ Some are here :-
 Lecture by Dr. Priya Darshni mam on 
 'Universal Humans Values'.
   * She explain briefly about
-     1. Understanding :- She told us that , understanding is one of the most important thing to get happiness and prosperity. 
-     2. Personal faculty :- These are the needs to survive . These only need to be sufficient.
+
+    
+     i. Understanding :- She told us that , understanding is one of the most important thing to get happiness and prosperity.
+ 
+     ii. Personal faculty :- These are the needs to survive . These only need to be sufficient.
         
-    3.Relationships :- She told that , one of the most needed thing in relationship is understanding. 
+    iii.Relationships :- She told that , one of the most needed thing in relationship is understanding. 
         
    
