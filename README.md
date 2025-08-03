@@ -9,7 +9,7 @@
   
 ##9:30 to 10:00 
 
-*We take tea and snacks .
+*We take tea and snacks . They were good in taste. 
 
 ## 10:00 to 04:30  
 We reach the auditorium.  There we get some lectures.  In lectures there are many new things to grab from our elders and teachers . Here are some of those :-
