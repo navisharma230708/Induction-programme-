@@ -1,39 +1,39 @@
 # Day 1
 ## 08:30 to 09:30 
 
-* We go to Gurudwara Sahib . There we have done Kirtan.
-* We enchant the name of 'WAHEGURU' .
+* We go to Gurudwara Sahib where we participated in Kirtan.
+* We chanted the name of 'WAHEGURU' .
 
-  * There we all pray to 'WAHEGURU' for our good future and future goals .
+  * There we all pray to 'WAHEGURU' for our better future and to achive our goals .
 
   
 ##9:30 to 10:00 
 
-*We take tea and snacks . They were good in taste. 
+*We have tea and snacks which were delicious and refreshing. 
 
 ## 10:00 to 04:30  
-We reach the auditorium.  There we get some lectures.  In lectures there are many new things to grab from our elders and teachers . Here are some of those :-
+We reached the auditorium.  There we attedded some lectures.  In lectures there were many new things to grab from our elders and teachers . Here are some of those :-
 
 
-1.Harpreet mam tell us about passion, persistence , presentation , prayer placement and growth .
+1.Harpreet mam spoke about passion, persistence , presentation , prayer placement and growth .
 
-2.Akshay sir  tell us about visiliasation and  communication skills . These are also too important in the life .
+2.Akshay sir  spkoe about visiliasation and  communication skills . These are also too important in the life .
 
-3.Parminder Singh sir tells us about dedication , pledge and hardworking.These are too essential to get success .
+3.Parminder Singh sir discussed about dedication , pledge and hardworking.These are too essential to get success .
 
-4.Dr sehaj pal Singh sir tells us about skills, respect and potential . We need skills and potential to do hardwork . 
+4.Dr sehaj pal Singh sir tells us about the importance of skills, respect and potential . We need skills and potential to achive success . 
 
-5. Ravinder garg sir tells us about respect and  hardwork .
+5. Ravinder garg sir also discussed about the  respect and  hardwork .
 
-6.Dr kulvinder Singh maan tells us that , There is  no difference in IT and CSE ,the only thing that matter is hard work .
+6.Dr kulvinder Singh maan tells us that , There is  no major difference between IT and CSE . The only thing that matter is hard work .
 
-7.Ashok singla sir tells us about how to manage finance . He also give us knowledge of eduction loan. 
-a. No need of security
-b. Rate of interest 10%
-c. Application for 0% interest .
-After getting eduction loan don't give  back till 5.5 year. After 5.5 year if employed then give it back till 8 years .
+7.Ashok singla sir spoke  about managing finance . He also gave  knowledge of eduction loan. 
+a. No need of security.
+b. 10 % interest rate .
+c. Application possible for 0% interest .
+After getting eduction loan don't need to pay   back loan till 5.5 year. After 5.5 year if employed then you gave  it back within 8 years .
 
-8. Rakesh Kumar sir 1991batch of GNDEC. He tells us about there is no shortcut in life .
+8. Rakesh Kumar sir (batch of 1991 in GNDEC) He tells us about there is no shortcut in life .
    # Day 2
    ## 09:30 to 10:30
    * There is English proficiency test
