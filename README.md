@@ -2,7 +2,9 @@
 ## 08:30 to 09:30 
 
 * We go to Gurudwara Sahib . There we have done Kirtan.
-* There we all pray to 'WAHEGURU' for our good future and future goals .
+* We enchant the name of 'WAHEGURU' .
+
+  * There we all pray to 'WAHEGURU' for our good future and future goals .
 
   
 ##9:30 to 10:00 
