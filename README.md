@@ -36,45 +36,48 @@ After getting eduction loan don't need to pay   back loan till 5.5 year. After 5
 8. Rakesh Kumar sir (batch of 1991 in GNDEC) He tells us about there is no shortcut in life .
    # Day 2
    ## 09:30 to 10:30
-   * There is English proficiency test
+   * We appered for English proficiency test
      ## 10:30 to 11:30
-     * There is Math proficiency test
+     *We appered for Math proficiency test
        ## 01:00 to 03:00
-       Dr. Aarshdeep Singh
-
-    A. His  lectute on (Food: A pivotal role in students overall wellness )
+       Dr. Aarshdeep Singh delivered lectute on (Food: A pivotal role in students overall wellness ). 
 
    
-B. He tell students about the nutrition and vitamins to take in food .
+A. He discussed about the importance of nutrition and vitamins to take in daily food .
 
 
-  C.  He also encourage students towards healthy food .
+  B.  He also encourage students towards healthy food .
 
   
-D. He clear the doubts of students and clear the myths .
+C. He addressed the student doubt and busted  the myths about food .
 
 
-   At last , our seniors enlighten us .
+   At last , our seniors enlighten us ( They told us that , how to us3 github and make repository).
+   
    # Day 3
    ## 09:00 to 11:00
-   Lecture by 'Dr. Jaswinder Singh '
-He tells about many things and we understand most of the things .
+   
+ Dr. Jaswinder Singh lecture on many science and mathematics experiments. And we understand most of the things .
 Some are here :-
-   1. He tell us 'Not to only read , but learn .'
-   2. He tell us to done our daily work regularly.
-   3. He explain us about the nature and also tell us to meditate .
+   1. He encourage us to 'Not to only read , but learn .'
+   2. He spkoe that  done our daily work regularly.
+   3. He explain us importance of  the nature and meditation .
    4. He also explains about some physics, mathematics,and science.
-   5. He say many words ,which can make over thinking better.
+   5. He say many words ,which can improve our thinking.
+
+      
   ## 11:00 to 01:00
-Lecture by Dr. Priya Darshni mam on 
+  
+Dr. Priya Darshni mam delivered lecture on 
 'Universal Humans Values'.
-  * She explain briefly about
+
+  * She explain briefly about :-
 
     
-     i. Understanding :- She told us that , understanding is one of the most important thing to get happiness and prosperity.
+     i. Understanding :- She told us that , understanding is the key to get happiness and prosperity.
  
-     ii. Personal faculty :- These are the needs to survive . These only need to be sufficient.
+     ii. Personal faculty :- These are the needs to survive and should be sufficient.
         
-    iii.Relationships :- She told that , one of the most needed thing in relationship is understanding. 
+    iii.Relationships :- She told that , understanding is the most important in relationships. 
         
    
