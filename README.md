@@ -1,9 +1,14 @@
 # Day 1
 ## 08:30 to 09:30 
 
-* We go to Gurudwara Sahib . There we have done 'Kirtan'.
+* We go to Gurudwara Sahib . There we have done Kirtan.
+* There we all pray to 'WAHEGURU' for our good future and future goals .
+
+  
 ##9:30 to 10:00 
+
 *We take tea and snacks .
+
 ## 10:00 to 04:30  
 We reach the auditorium.  There we get some lectures.  In lectures there are many new things to grab from our elders and teachers . Here are some of those :-
 
