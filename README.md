@@ -76,8 +76,9 @@ Dr. Priya Darshni mam delivered lecture on
     
      i. Understanding :- She told us that , understanding is the key to get happiness and prosperity.
  
-     ii. Personal faculty :- These are the needs to survive and should be sufficient.
+     ii. Personal facility :- These are the needs to survive and should be sufficient.
         
     iii.Relationships :- She told that , understanding is the most important in relationships. 
         
-   
+   #Day4 :- Lecture delivered on UNIVERSAL Humans Values (UHV)
+   Firstly , I attended lecture of chemistry and p2p. In lecture delivered by Dr priya Darshni mam on right understanding . There I got that , body is different and other is self . We only focus on body and try to fix self by personal facility.  At last , she answered all of students questions in better manner. 
