@@ -85,3 +85,42 @@ Dr. Priya Darshni mam delivered lecture on
    
     Lecture delivered on UNIVERSAL Humans Values (UHV)
    Firstly , I attended lecture of chemistry and p2p. In lecture delivered by Dr priya Darshni mam on right understanding . There I got that , body is different and other is self . We only focus on body and try to fix self by personal facility.  At last , she answered all of students questions in better manner. 
+
+# Day5
+
+
+## 09:30 to 10:30 
+Prof.Mojot kaur delivered the lecture of english in which discussed about basics 
+human edicates . And some about english syllabus .
+
+
+## 10:30 to 11:30 
+
+Prof. Harpreet Kaur delivered lecture on 
+BEEE ( Basic Electrical and Electronics Engineering) . She told about circuits,  LCR ( Inductor, Resistor and Capacitor)
+and and how to find the resistance and tolurance of a resistor .
+
+
+
+## 11:30 to 12:30 
+
+Prof.Gagandeep Kaur delivered lecture and intract with students  . She told us that , the math is the only subject we can't get without practicing or can't get with ppt .
+
+# Day 6
+## 9:30 to 10:30 
+Our senior delivered lecture on p2p.
+They understand us properly and they have friendly nature with us. They took our
+doubts and clear them .
+
+## 10:30 to 11:30 
+Prof. Jaswant Singh delivered lecture.  
+The lecture was about to know us and our prospective about computer science and engineering. 
+
+
+
+
+
+ After the break we reached auditorium ,there Dr. Lakhvir Singh khana delivered lecture on Center of faceted learning (CML).He is the incharge of CML. He told that , center enhance our passion skills and our confidience . At last , he told about NPTEl.
+ Through NPTEL we can fo online courses and grab opportunity to want to IITs .
+ And get experience from IIT professors.
+
