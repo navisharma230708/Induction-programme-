@@ -91,30 +91,36 @@ Dr. Priya Darshni mam delivered lecture on
 
 ## 09:30 to 10:30 
 Prof.Mojot kaur delivered the lecture of english in which discussed about basics 
-human edicates . And some about english syllabus .
+human etiquette and student etiquetts also. She gave overview on english syllabus . She told all the students to 
+respect elders like great all elders you meet . She told all these in a gentle and 
+polite way which was easy to understand 
+to all .
 
 
 ## 10:30 to 11:30 
 
 Prof. Harpreet Kaur delivered lecture on 
-BEEE ( Basic Electrical and Electronics Engineering) . She told about circuits,  LCR ( Inductor, Resistor and Capacitor)
-and and how to find the resistance and tolurance of a resistor .
-
+BEEE ( Basic Electrical and Electronics Engineering) . She gave overview circuits 
+used in the engineering , LCR which is called inductor,Capacitor and resistor .
+ She told us how to calculate the resistance and tolurance of a resistor .
+And how to decode the codes of resistor .
 
 
 ## 11:30 to 12:30 
 
-Prof.Gagandeep Kaur delivered lecture and intract with students  . She told us that , the math is the only subject we can't get without practicing or can't get with ppt .
+Prof.Gagandeep Kaur delivered lecture and intract with students  . She said that we cannot get the mathematics only by seeing the presentation , for better getting of maths , we need to do full eforts and practice the math to understand easily which helps us in solving problems or calculations easily . 
 
 # Day 6
 ## 9:30 to 10:30 
 Our senior delivered lecture on p2p.
-They understand us properly and they have friendly nature with us. They took our
-doubts and clear them .
+They told about the cpp or c++ programing language . They took examples of codes to understand us .They understand us properly and they have friendly nature with us. They took our
+questions and clear the doubts .
 
 ## 10:30 to 11:30 
 Prof. Jaswant Singh delivered lecture.  
-The lecture was about to know us and our prospective about computer science and engineering. 
+The lecture was about to intract  with us and trying to view our prospective. He cleared the goal of choosing CSE ( Computer Science and Engineering ).
+He tried to see our prospective of seeing the CSE. 
+
 
 
 
@@ -124,3 +130,22 @@ The lecture was about to know us and our prospective about computer science and 
  Through NPTEL we can fo online courses and grab opportunity to want to IITs .
  And get experience from IIT professors.
 
+# Day 7
+
+In morning, we attended our lecture in auditorium. Dr. Amrit Karma the incharge of  DMC ( Digital Marketing Club ).
+He told us that , the Facebook page of GNDEC is made in 2019 . The club was made in 2024 . The club provides hand on experiences , good industry connections 
+and competitive edge in the job market .
+This club helps in practical skill development.  The club ran the social media campaigns . 
+The club offers in enhancing the skills like content creation , vedio editing , 
+photography and creative writing. 
+Dr. Parminder Singh , who is Dean -
+student welfare.  He told all four years are important in four years we need to follow our passin , manage time and enhance the others skills side by side. 
+He told that , if we done any mistake 
+our teachers will correct us here .
+But if we done any mistake in our job 
+we aren't able to correct it. 
+Dr. Randhir Singh , who is conduct of 
+examination.  He understood us if we fail in odd semester , we can only clear it in the odd semester not in even semester and vice-versa . He understood us about the rules of college.  He gave overview on examination.  
+
+
+After break in afternoon,  we submitted our application for student ID .
